@@ -13,3 +13,5 @@ Estos dos grupos comparten una actitud romántica. Ellos creen en la acción inm
 ## Pensamiento lineal
 
 No voy a decir, como Aristóteles, que el camino medio es el mejor, pues en la música -como en la política- el camino medio demanda compromiso. Más bien, la lucidez y la dureza del pensamiento crítico, en otras palabras, la acción, reflexión y autotransformación por los mismos sonidos- es el camino a seguir. Así cuando el pensamiento científico y matemático sirva a la música, o a cualquier actividad humana creativa, debería amalgamarse dialécticamente con la intuición. El hombre es uno, indivisible y total. Él piensa con su panza y siente con su mente. Yo quisiera proponer lo que en mi opinión, cubre el término "música":
+
+WENA CTM
