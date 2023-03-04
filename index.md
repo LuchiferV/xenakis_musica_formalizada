@@ -1,5 +1,5 @@
 # Wena LuchiferV
 
 # Capítulos
-[Música Estocástica Libre](contenidos/1_musica_estocastica_libre.md)
-[Hacia una Metamúsica](contenidos/metamusica.md)
+* [Música Estocástica Libre](contenidos/1_musica_estocastica_libre.md)
+* [Hacia una Metamúsica](contenidos/metamusica.md)
